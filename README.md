@@ -1,2 +1,3 @@
 # James-Mc-Dougall02
-Personal
+Welcome to the github of dreams. 
+Ad astra per aspera
